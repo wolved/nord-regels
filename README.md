@@ -1,1 +1,1 @@
-# [Nord Roleplay Discord](https://discord.gg/zY7pzmMTt9)
+# [Nord Roleplay Discord](https://discord.gg/)
